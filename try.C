@@ -1,3 +1,2 @@
 blablabla
-asdfasfasdfkjasdöfklasdjfölaskdjfasfjasfjskfj
 ich schreibe noch eine funktion!!
